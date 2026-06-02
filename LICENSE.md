@@ -1,4 +1,4 @@
-# 
+# Instant Adobe After Effects workflow for Mac OS | Professional Adobe After Effects workflow for PC Windows. Featuring macro-recording and time-stretching — optimized for maximum performance on every platform.
 
 
 
